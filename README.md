@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TheRogueSpy
+- 👋 Hi, I’m S E N T I E N T
 - 👀 I’m interested in ... Wouldn't you like to know, Fed Boi
 - 🌱 I’m currently learning ... Yes
 - 💞️ I’m looking to collaborate on ... Nothing
